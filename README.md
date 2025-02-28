@@ -1,0 +1,1 @@
+# Lazy-s-Brain-Strom-Idea
